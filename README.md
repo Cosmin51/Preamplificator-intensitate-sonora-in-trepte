@@ -1,1 +1,0 @@
-# Preamplificator-intensitate-sonora-in-trepte
